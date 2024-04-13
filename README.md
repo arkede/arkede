@@ -17,3 +17,5 @@ The journey through cybersecurity is a perpetual learning experience. With each 
 In this digital age, sharing insights and collaborating on projects can spark the innovation needed to tackle emerging cybersecurity challenges. I'm eager to connect with fellow professionals, organizations, and anyone passionate about making the cyber world a safer place.
 
 Reach out to me for collaboration, networking, or just a conversation about the latest in cybersecurity.
+
+My email: ikun70131@gmail.com
